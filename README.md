@@ -46,4 +46,6 @@ though if i do not respond to your whisper or stuff that means I dunno what to r
 <img width="1500" alt="tumblr_00424fe4ddd0330b020d92496425153e_2a7c3bf8_2048" src="https://github.com/user-attachments/assets/c9af6656-6173-40e1-9a95-1e00ace77a56" />
 
 
+FOR CHEMICALSHOT, DNC hi awze wow thats so cool so so ososo soso cool 
+
 
